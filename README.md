@@ -20,7 +20,7 @@ I'm open to collaborating on interesting projects related to web development, AP
 
 ## How to Reach Me
 
-You can reach me via email at [harshabc10@gmail.com](mailto:harshabc10@gmail.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/yourprofile).
+You can reach me via email at [harshabc10@gmail.com](mailto:harshabc10@gmail.com) or connect with me on [LinkedIn]([https://www.linkedin.com/in/yourprofile](https://www.linkedin.com/in/harsha-bc-b15063205/)).
 
 ## Pronouns
 
